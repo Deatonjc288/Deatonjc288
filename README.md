@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+I currently am in school for 3d. I always fool and play around with coding unity projects with the help of AI. You ask me about history or we could discuss ideas for complex video games. I'm related to billionaire R.J. Corman.
 <!--
 **Deatonjc288/Deatonjc288** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
